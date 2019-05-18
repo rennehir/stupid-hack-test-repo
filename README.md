@@ -1,3 +1,7 @@
+I couldn't figure out how the seat belt worked. Then it just clicked.
+
+I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+
 Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
 
 You know that cemetery up the road? People are dying to get in there.
