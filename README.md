@@ -1,3 +1,5 @@
+Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+
 I couldn't figure out how the seat belt worked. Then it just clicked.
 
 I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
